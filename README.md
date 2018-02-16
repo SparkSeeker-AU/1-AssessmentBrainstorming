@@ -10,7 +10,7 @@ In order to be more productive in our first meeting, we recommend you to prepare
 * Outcome of your past and existing China engagement if any
 * Concerns you have about Chinese market and helps you are seeking for
 
-We will post here a quickly survey in the near future. Using that survey you can work out your China marketing journey stages and relevant free content you can take advantage of.
+We will post here a quickly survey in the near future. Using that survey you can work out your China marketing journey stages and relevant free digitial content you can take advantage of.
 
 Enjoy!
 

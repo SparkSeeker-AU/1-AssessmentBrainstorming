@@ -1,2 +1,7 @@
 # 1-AssessmentBrainstorming
-1. Step - Marketing Journey to China
+
+## First Step - Marketing Journey to China
+
+Enjoy!
+
+(SparkSeeker Team - www.sparkseeker.com.au | contact@sparkseeker.com.au)

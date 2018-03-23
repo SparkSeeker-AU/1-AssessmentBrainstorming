@@ -2,7 +2,7 @@
 
 ## First Step - Marketing Journey to China
 
-We are providing you obligation free, free-of-charge initial consultantion and stage review service.
+We are providing businesses that take on the China journey with obligation free, free-of-charge initial consultantion and stage review services. 
 In order to be more productive in our first meeting, we recommend you to prepare the following information:
 
 * Details or demos of your products and services
